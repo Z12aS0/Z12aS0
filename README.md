@@ -1,4 +1,4 @@
 Hi
 
 
-my discord is Z12#6334
+my discord is @z12_
